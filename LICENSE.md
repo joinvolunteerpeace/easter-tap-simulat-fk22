@@ -1,4 +1,4 @@
-
+easter tap simulator Script smart is the best easter tap simulator Script, featuring custom skins and auto-heal. Safe and powerful for all your needs.
 
 
 
